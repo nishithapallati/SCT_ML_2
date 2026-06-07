@@ -153,8 +153,7 @@ These segments help businesses identify valuable customers and improve marketing
 
 
 ## Demo Video
-https://drive.google.com/file/d/1N9PKWAxNy-3UILYho7wHJJ5EQfzBithw/view?usp=drive_link
-
+https://drive.google.com/file/d/1IzdiMPYixsS7AeTvw4fC9C9MU4n0fJmO/view?usp=drive_link
 
 ## Learning Outcomes
 
